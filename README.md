@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @shampate74
+- 👀 I’m interested in problem solving and coding challenges
+- 🌱 I’m currently learning Masters in Computer Science
+- 📫 You can reach we at my linkedin profile : http://linkedin.com/in/shaman-patel-88390329b
